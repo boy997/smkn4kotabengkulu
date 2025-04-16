@@ -1,0 +1,2 @@
+# smkn4kotabengkulu
+gabut
